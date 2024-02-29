@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **dungrani9440nirav@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1x1aMrkk3UpywTP6EHEF0bvyLLoKzmUE0/view?usp=sharing](https://drive.google.com/file/d/1x1aMrkk3UpywTP6EHEF0bvyLLoKzmUE0/view?usp=sharing)
+- 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/1eGZ5Ly8A6kGUEzIRkZYUMho--sBKKZC-/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
